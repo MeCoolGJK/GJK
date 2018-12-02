@@ -20,4 +20,5 @@
 	- v dnešní době je tato myšlenka vyvrácena
 	- dříve totiž poslal dopis s popisem tohoto díla, kde popisoval, jak je nahodilé
 
-Oráčovi umře jeho milovaná žena. Oráč začne obviňovat Smrt, pustí se sní do velkých pří. Na začátku dokonce Smrt považuje za podřazenou a označuje ji silnými slovy
+Oráčovi umře jeho milovaná žena. Oráč začne obviňovat Smrt, pustí se sní do velkých pří.
+Na začátku dokonce Smrt považuje za podřazenou a označuje ji silnými slovy.
